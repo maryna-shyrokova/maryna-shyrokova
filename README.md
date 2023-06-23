@@ -7,4 +7,4 @@
 * I have **strong analytical skills**, but I've been working **a creative job** for 5 years
 * With significant **expirience in Marketing**, I truly want **to switch to a career** in development or data science.
 
-  A little more information about my kids: my son is 5 and my douther is 7.
+ little more information about how tough my course, Python Programming. I understand all the information quite well, do all the exercises, and study independently when necessary.
